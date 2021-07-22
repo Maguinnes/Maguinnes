@@ -1,0 +1,4 @@
+- Hi, I’m Magnus
+- I’m interested in progamming logic
+- I’m currently learning games design
+- I’m looking to collaborate on... actually i don't know
